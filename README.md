@@ -1,2 +1,2 @@
 # links
-Social redirects for all my shit lol
+Social redirects for all my stuff lol
